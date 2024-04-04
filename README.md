@@ -1,4 +1,4 @@
-![AI](https://github.com/sourceduty/Copyright_AI/assets/123030236/f895aaa5-4ae9-4bc8-b2a4-c0d10f90accb)
+![AI](https://github.com/sourceduty/Copyright_AI/assets/123030236/728cb559-4bd3-4cbe-af25-6f0d50a139e2)
 
 ### AI and Automated Copyright Infringement
 
